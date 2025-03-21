@@ -1,4 +1,4 @@
-![Banner Image](https://www.canva.com/design/DAGiZHefmWE/OltdSZ2eBXJsdPQBfhaT6g/view)
+![Banner Image](https://www.canva.com/design/DAGiZHefmWE/OltdSZ2eBXJsdPQBfhaT6g/view?utm_content=DAGiZHefmWE&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=ha9fe11b7b9)
 
 ## 💫 About Me:
 
