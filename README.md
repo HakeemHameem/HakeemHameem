@@ -1,4 +1,4 @@
-![Banner Image](https://raw.githubusercontent.com/HakeemHameem/HakeemHameem/main/banner.png)
+![Banner Image](https://www.canva.com/design/DAGiZHefmWE/OltdSZ2eBXJsdPQBfhaT6g/view)
 
 ## 💫 About Me:
 
