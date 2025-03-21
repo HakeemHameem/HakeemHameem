@@ -1,4 +1,4 @@
-![Banner Image](bgn.png)
+![Banner Image](bg2.png)
 
 ## 💫 About Me:
 
