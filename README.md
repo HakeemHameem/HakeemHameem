@@ -1,6 +1,6 @@
 💫 About Me:
 
-I am a Full-Stack developer based in Bangalore, India. I am an Information Technology undergraduate from MVJCE. I am very passionate about improving my coding skills & developing applications & websites. I build WebApps and Websites using MERN Stack. Working for myself to improve my skills. Love to build Full-Stack clones. 🚀
+I am a Full-Stack developer based in Bangalore, India. I am an Information Technology undergraduate from MVJCE. I am very passionate about improving my coding skills & developing applications & websites. I build WebApps and Websites using MERN Stack and often active on Leetcode. Working for myself to improve my skills. Love to build Full-Stack clones. 🚀
 
 
 ## 🌐 Socials:
